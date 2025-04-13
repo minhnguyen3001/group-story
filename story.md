@@ -1,1 +1,1 @@
-Once upon a time, a alien and a cowboy met in a coffee shop, and they became best friends.
+Once upon a time, an alien and a cowboy met in a coffee shop, and they became best friends.
